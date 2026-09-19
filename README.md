@@ -255,7 +255,7 @@ Every suggestion is appreciated.
 
 ## 👤 Creator
 
-Made with ❤️ by **maxchennn**.
+Made with ❤️ by **xzsides**.
 
 ---
 
